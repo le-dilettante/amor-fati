@@ -1,3 +1,4 @@
+# Amor Fati
 But this, though: death,
 the whole of death, — even before life’s begun,
 to hold it all so gently, and be good:
@@ -10,8 +11,8 @@ sostenerlo todo con tanta delicadeza, y ser bueno:
 esto está más allá de toda descripción.
 — Rilke
 
+**To be, or to be left behind.**
 
-# Amor Fati
 
 This is a working space.
 
